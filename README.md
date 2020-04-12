@@ -14,6 +14,7 @@ Just Open Notepad in your PC...
 And type the following codes...
 
 ## Setup Video-
+[![YouTube](https://img.youtube.com/vi/eERJws74t5A/0.jpg)](https://youtu.be/eERJws74t5A)
 
 # Setup-
 
