@@ -20,3 +20,22 @@ Now give this file to the person you want through pendrive or as an attachment a
 
 This virus is harmless and can only shutdown their PC if they type "NO" when the program asks them....
 But I will not be responsible for anything if anything Goes wrong with their PC...
+
+## 🔗 ***Check this***
+
+### Subscribe our channel on youtube:
+https://www.youtube.com/BMHacker
+
+### Chekout our webite:
+https://h1ckpro.tk
+
+## 👥 ***Join***
+
+### Telegram channel:
+https://t.me/bmhackerofficial
+
+### Facebook page:
+https://www.facebook.com/bmh1cker
+
+### Instagram: 
+https://www.instagram.com/bmh1cker
