@@ -13,6 +13,8 @@ Just Open Notepad in your PC...
 
 And type the following codes...
 
+## Setup Video-
+
 # Setup-
 
 After typing, Save the file as Love.bat
